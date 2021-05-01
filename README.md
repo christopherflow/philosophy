@@ -1,0 +1,2 @@
+# philosophy
+marijuana inspired
